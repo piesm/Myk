@@ -1,2 +1,2 @@
 # Myk
-This is my project..
+Tu polskie radio Primu, czyli San Escobarski odział radia wolna Czarno góra...
